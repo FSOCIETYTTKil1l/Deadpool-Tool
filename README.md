@@ -3,6 +3,10 @@ discord.gg/qJxYDurpKk
 ON WINDOWS AND LINUX
 -------------------------
 
+
+<img width="1158" height="544" alt="Screenshot 2025-12-13 014246" src="https://github.com/user-attachments/assets/d2369fd3-9815-4e77-988e-156ba509b90e" />
+
+
 What does the tool have? ⤵️ 
 # DISCORD ⤵️
 
