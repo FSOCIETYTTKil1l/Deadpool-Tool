@@ -1,5 +1,6 @@
 # Mady by TT : Kil1l
-discord.gg/qJxYDurpKk
+discord.gg/qJxYDurpKk 
+ON WINDOWS AND LINUX
 -------------------------
 
 What does the tool have? ⤵️ 
